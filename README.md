@@ -3,8 +3,6 @@
 
 ```
 Page under construction. Some links may not work. Soon we will be back on our feet!
-
-
 ```
 
 ### Recent articles
